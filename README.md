@@ -1,4 +1,4 @@
-![aiupscale1best](https://github.com/xihn/xihn/assets/126204434/9c8a7359-c038-41a6-ba4a-092c12460b52)
+![image](https://github.com/xihn/xihn/assets/126204434/80fde8b4-5c74-4906-bceb-99e5f4723a29)
 interested in computational design, graphics, etc. 
 \
 (also anonynimity, privacy, right to repair, open source) 
